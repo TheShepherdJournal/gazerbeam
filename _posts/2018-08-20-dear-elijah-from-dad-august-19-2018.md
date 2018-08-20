@@ -13,7 +13,7 @@ August 19, 2018
 
 Dear Elijah,
 
-Today, we recorded our second Minecraft live stream. I gave my gamer tag of “gazerbeam,” and you went by the name of “Elijah.” Our goal was to build three houses and, I think, blow two of them up, maybe. What we ended up doing is building a house that was high up on a precipice, you built a smaller house down lower, and then we both worked together to build an underwater base. We disagreed on the construction of the base. I tried to build an airlock, but you kept getting upset whenever I flooded the inside of our base with water.
+Today, we recorded our <a href="https://www.youtube.com/watch?v=KeLwOxFdAEU">second Minecraft live stream</a>. I gave my gamer tag of “gazerbeam,” and you went by the name of “Elijah.” Our goal was to build three houses and, I think, blow two of them up, maybe. What we ended up doing is building a house that was high up on a precipice, you built a smaller house down lower, and then we both worked together to build an underwater base. We disagreed on the construction of the base. I tried to build an airlock, but you kept getting upset whenever I flooded the inside of our base with water.
 
 After lunch, you and I went on a walk around the Shepherd trail. At first, you didn’t want to walk the entire way, but thanks to a little but of encouragement from me, frequent stops, and a shortcut across the baseball fields, we were able to make it all of the way around. We stopped at the elementary school playground, where I wanted to get a photo of you. You were resistant to the idea of being photographed, and didn’t seem so interested in playing on the playground at first, but then suddenly you saw something you liked and changed your mind. Which was fine to me.
 
